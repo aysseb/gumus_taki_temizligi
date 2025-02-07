@@ -1,0 +1,1 @@
+# gumus_taki_temizligi
